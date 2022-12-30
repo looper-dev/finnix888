@@ -1,1 +1,1 @@
-# [finnix888](https://finnix888.com/)
+# [finnix888](https://looper-dev.github.io/finnix888/สล็อต/slotpg-finnix888)
